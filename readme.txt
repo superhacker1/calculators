@@ -1,0 +1,1 @@
+These are my two calculators. Please don't be too harsh on me. I didn't get to do the other three cause I had tickets to the Lakers game last night. Make sure you try out both files. Thank you kind people. 
